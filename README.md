@@ -25,11 +25,8 @@ En el tacuaral
 Canta su dolor
 Sin fin.
 
-Campacho
-Solito en el monte
-Donde el día esconde
-Lumbre de la tierra
-Ceniza de sol.
-Lapacho
+tananananana batman
+tananananana batman
+batman, batman
 
 Campacho...
