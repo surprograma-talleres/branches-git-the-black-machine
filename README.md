@@ -1,12 +1,12 @@
-### [Alma de campacho](https://www.youtube.com/watch?v=i-mwsUGBzI4) - Ramón Ayala
+### [Alma de lapacho](https://www.youtube.com/watch?v=i-mwsUGBzI4) - Ramón Ayala
 
-Campacho
+Lapacho
 Solito en el monte
 Donde el día esconde
 Lumbre de la tierra
 Ceniza de sol.
 
-Campacho
+Lapacho
 También en mi alma
 La vida
 Sembró su color.
@@ -24,3 +24,12 @@ El urutaú
 En el tacuaral
 Canta su dolor
 Sin fin.
+
+Lapacho
+Solito en el monte
+Donde el día esconde
+Lumbre de la tierra
+Ceniza de sol.
+Lapacho
+
+Lapacho...
