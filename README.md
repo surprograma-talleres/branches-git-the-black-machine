@@ -24,9 +24,3 @@ El urutaú
 En el tacuaral
 Canta su dolor
 Sin fin.
-
-tananananana robin
-tananananana robun
-robin, robin
-
-Campacho...
